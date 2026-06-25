@@ -9,7 +9,7 @@ The **🏆 Best Sims 4 Mods** is the ultimate curated collection of essential mo
 
 <div align="center">
 
-[![Download Best Sims 4 Mods](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/best-sims-4-mods)
+[![Download Best Sims 4 Mods](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/best-sims-4-mods)
 
 </div>
 
@@ -109,7 +109,7 @@ You want the best mods. You want them to work together. You want one simple down
 6. **🎮 Launch The Sims 4** — open the game
 7. **✅ Enjoy** — all mods are active
 
-[![Download Best Sims 4 Mods](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/best-sims-4-mods)
+[![Download Best Sims 4 Mods](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/best-sims-4-mods)
 
 ### Enabling Script Mods
 
@@ -205,7 +205,7 @@ Transform your Sims 4 experience. **Best Sims 4 Mods** gives you the ultimate co
 
 <div align="center">
 
-[![Download Best Sims 4 Mods](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/best-sims-4-mods)
+[![Download Best Sims 4 Mods](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/best-sims-4-mods)
 
 **Version 4.6.1** — Essential Sims 4 mods collection. Free forever.
 
